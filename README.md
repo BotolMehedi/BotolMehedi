@@ -5,4 +5,6 @@
 <p align="center">
 <a href="https://github.com/botolmehedi/b11"><img title="B11" src="https://github-readme-stats.vercel.app/api/pin/?username=botolmehedi&repo=b11&theme=dark"></a>
 <a href="https://github.com/botolmehedi/bvai"><img title="BVAI" src="https://github-readme-stats.vercel.app/api/pin/?username=botolmehedi&repo=bvai&theme=dark"></a>
+<a href="https://github.com/botolmehedi/b08"><img title="B08" src="https://github-readme-stats.vercel.app/api/pin/?username=botolmehedi&repo=b08&theme=tokyonight"></a>
+<a href="https://github.com/botolmehedi/btarget"><img title="BTARGET" src="https://github-readme-stats.vercel.app/api/pin/?username=botolmehedi&repo=btarget&theme=vision-friendly-dark"></a>
 </p>
