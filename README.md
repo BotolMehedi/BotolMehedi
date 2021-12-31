@@ -3,7 +3,7 @@
 
 <p><img width="494" align="center" src="https://github-readme-stats.vercel.app/api/top-langs?username=BotolMehedi&show_icons=true&locale=en&layout=compact" alt="Mehedi Hasan Ariyan" /></p>
 
-[![Mehedi's github activity graph](https://activity-graph.herokuapp.com/graph?username=BotolMehedi&bg_color=000000&color=4897FF&line=25FF17&point=1adbce&area=true&hide_border=true)](https://github.com/BotolMehedi/github-readme-activity-graph)
+[![Mehedi's github activity graph](https://activity-graph.herokuapp.com/graph?username=BotolMehedi&bg_color=ffffff&color=777777&line=ff5200&point=1adbce&area=true&hide_border=true)](https://github.com/BotolMehedi/github-readme-activity-graph)
 <h3 align="center">¯\_(ツ)_/¯
 
 Learner | Fucker
