@@ -23,7 +23,7 @@ Learner | Fucker
 
 ### Connect with me:
 
-[<img align="left" alt="Dekhi.LIVE" width="22px" src="https://cdn-icons.flaticon.com/png/512/878/premium/878710.png?token=exp=1640918492~hmac=d8179ceb506205b6308906888ae340cb" />](https://dekhi.live)
+[<img align="left" alt="WEB" width="22px" src="https://cdn-icons.flaticon.com/png/512/2065/premium/2065287.png?token=exp=1644379022~hmac=7d4a60b3fda865c8b7d6ac3711bcad58" />](https://linktr.ee/botolbaba)
 [<img align="left" alt="Mehedi Hasan Ariyan | YouTube" width="22px" src="https://cdn-icons-png.flaticon.com/512/124/124010.png" />](https://facebook.com/themehtan)
 [<img align="left" alt="Mehedi Hasan Ariyan | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />](https://youtube.com/botolbaba)
 [<img align="left" alt="Mehedi Hasan Ariyan | Twitter" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />](https://twitter.com/botolbaba)
