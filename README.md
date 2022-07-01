@@ -19,7 +19,7 @@ Learner | Fucker
 
 - 📫 How to reach me **TheBotolBaba@gmail.com**
 
-- ⚡ Fun fact **I can provide you heard SEX totally Free 😍**
+- ⚡ Fun fact **I can provide you hard SEX totally Free 😍**
 
 ### Connect with me:
 
