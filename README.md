@@ -22,13 +22,15 @@ Learner | Fucker
 - ⚡ Fun fact **I can provide you hard SEX totally Free 😍**
 
 ### Connect with me:
+<div align="center">
+[<img src="https://img.shields.io/badge/Telegram-%23000000.svg?&style=for-the-badge&logo=telegram&logoColor=61DAFB">](https://t.me/thebotolbaba/)
+[<img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white">](https://mail.google.com/mail/?view=cm&fs=1&to=thebotolbaba@gmail.com)
+[<img src="https://img.shields.io/badge/youtube-%230077B5.svg?&style=for-the-badge&logo=youtube&logoColor=white">](https://youtube.com/dailyearningbd)
+[<img src="https://img.shields.io/badge/Twitter-12100E?style=for-the-badge&logo=twitter&logoColor=white">](https://twitter.com/botolbaba/)
+[<img src="https://img.shields.io/badge/facebook-%231877F2.svg?&style=for-the-badge&logo=facebook&logoColor=white">](https://facebook.com/themehtan)
+[<img src="https://img.shields.io/badge/instagram-%23E4405F.svg?&style=for-the-badge&logo=instagram&logoColor=white">](https://instagram.com/mehtanofficial)
+</div>
 
-[<img align="left" alt="Mehedi Hasan Ariyan | YouTube" width="22px" src="https://cdn-icons-png.flaticon.com/512/124/124010.png" />](https://facebook.com/themehtan)
-[<img align="left" alt="Mehedi Hasan Ariyan | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />](https://youtube.com/botolbaba)
-[<img align="left" alt="Mehedi Hasan Ariyan | Twitter" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />](https://twitter.com/botolbaba)
-[<img align="left" alt="Mehedi Hasan Ariyan | Twitter" width="22px" src="https://cdn-icons-png.flaticon.com/512/906/906377.png" />](https://t.me/botolbaba)
-[<img align="left" alt="Mehedi Hasan Ariyan | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />](https://www.linkedin.com/in/botolbaba)
-[<img align="left" alt="Mehedi Hasan Ariyan | Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />](https://instagram.com/mehtanofficial)
 <br/>
 
 ### 🛠 &nbsp;Tech Stack
